@@ -1,1 +1,1 @@
-# -En-Tangled-Minds---Global-Quantum-Game-Jam-2024
+# En-Tangled-Minds---Global-Quantum-Game-Jam-2024
